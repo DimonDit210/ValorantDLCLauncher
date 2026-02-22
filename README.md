@@ -1,5 +1,5 @@
 # VALORANT RALPH DLC – Руководство пользователя
-# Автор - AleksaShop. Купить - https://funpay.com/lots/offer?id=64070907
+#№ Автор - AleksaShop. Купить - https://funpay.com/lots/offer?id=64070907
 
 ## 1. Приветствие
 
